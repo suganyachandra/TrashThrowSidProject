@@ -1,1 +1,1 @@
-# TrashThrowSidProject
+# Trash-Throwing-3
